@@ -2,6 +2,6 @@
 
 📚 Thoughts are philosophical
 
-🔍 Find me in the internet with my handle `monishcm` _(almost always)_
+🔍 `monishcm`
 
 🇮🇳 🇺🇸 🇸🇬 🇳🇱
